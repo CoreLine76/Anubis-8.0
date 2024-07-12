@@ -1,6 +1,8 @@
+Sorry guys I haven't been here in a long time. I am sorry for being late.
+I can help you via telegram.
 Anubis 8.0 was designed as an Android RAT.
 
-Telegram : CoreLine76
+Telegram : https://t.me/Linecore76
 
 Actually 8.0 was not developed by its author.
 It was slightly modified by another developer and called 8.0.
