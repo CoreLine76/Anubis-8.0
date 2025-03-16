@@ -3,7 +3,8 @@ I can help you via telegram.
 Anubis 8.0 was designed as an Android RAT.
 
 I can provide Installation Support
-💥Telegram : https://t.me/CoreTheLine💥
+
+💥CONTACT💥 https://t.me/CoreTheLine💥
 
 💥Installation is Fully Paid!!! License is Paid!!!💥
 
